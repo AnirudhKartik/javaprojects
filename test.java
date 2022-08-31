@@ -1,5 +1,0 @@
-
-namasthe
-
-jdjdj
-
